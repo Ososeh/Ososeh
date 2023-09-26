@@ -1,4 +1,4 @@
-[https://github.com/Ososeh](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3Bk%2BO9UmXWSECKkz3X%2BfBocA%3D%3D)
+https://www.linkedin.com/in/ebewele-ososeh-0a2bb61b8/
 
 Welcome to my page, please have a look at some of my works as I started my programming journey
 
